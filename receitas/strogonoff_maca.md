@@ -6,9 +6,9 @@
 
 ##### Ingredientes
 
-- 1 quilo de peito de frango sem pele
+- 1 quilo de maça verde
 
-- 1 tablete de caldo de galinha
+- 1 tablete de chocolate
 
 - 3 colheres  de sopa de óleo
 
